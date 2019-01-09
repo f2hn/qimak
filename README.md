@@ -1,0 +1,2 @@
+# qimak
+AssaLamuaLaikum
